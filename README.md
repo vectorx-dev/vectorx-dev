@@ -9,3 +9,6 @@
 - **A ᴄᴜʀɪᴏsɪᴛʏ Pʏᴛʜᴏɴ Lᴇᴀʀɴᴇʀ ғʀᴏᴍ Iɴᴅɪᴀ <img height="15" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Indian-Flag.gif">**<br>
 - **Lᴏᴠᴇ ᴛᴏ Cᴏᴅᴇ Lᴀɴɢᴜᴀɢᴇs** <img width="35" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Coder.gif">
 - **Aʟsᴏ ᴀ Gʀᴀᴘʜɪᴄs Dᴇsɪɢɴᴇʀ** <img height="25" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Adobe-Apps.gif">
+
+
+
