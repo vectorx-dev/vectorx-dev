@@ -9,4 +9,4 @@
 - **Aʟsᴏ ᴀ Gʀᴀᴘʜɪᴄs Dᴇsɪɢɴᴇʀ** <img height="25" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Adobe-Apps.gif">
 
 # <img height="30" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Loading.gif"> Mʏ Hᴏʙʙɪᴇs : 
-<img src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Coding.gif">
+[<img src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Coding.gif">](https://t.me/Vector_Op)
