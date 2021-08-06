@@ -8,5 +8,5 @@
 - **Lᴏᴠᴇ ᴛᴏ Cᴏᴅᴇ Lᴀɴɢᴜᴀɢᴇs** [<img width="35" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Coder.gif">](https://t.me/its_vector)
 - **Aʟsᴏ ᴀ Gʀᴀᴘʜɪᴄs Dᴇsɪɢɴᴇʀ** [<img height="25" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Adobe-Apps.gif">](https://t.me/VectorXGraphics)
 
-# <img height="35" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Loading.gif"> Mʏ Hᴏʙʙɪᴇs : 
+# [<img height="35" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Loading.gif">](https://t.me/its_vector) Mʏ Hᴏʙʙɪᴇs : 
 [<img src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Coding.gif">](https://t.me/its_vector)
