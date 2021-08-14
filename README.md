@@ -7,7 +7,7 @@
 - **A ᴄᴜʀɪᴏsɪᴛʏ Pʏᴛʜᴏɴ Lᴇᴀʀɴᴇʀ ғʀᴏᴍ Iɴᴅɪᴀ [<img height="15" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Indian-Flag.gif">](https://t.me/its_vector)**<br>
 - **Lᴏᴠᴇ ᴛᴏ Cᴏᴅᴇ Lᴀɴɢᴜᴀɢᴇs** [<img width="35" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Coder.gif">](https://t.me/its_vector)
 - **Aʟsᴏ ᴀ Gʀᴀᴘʜɪᴄs Dᴇsɪɢɴᴇʀ** [<img height="25" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Adobe-Apps.gif">](https://t.me/VectorXGraphics)
-- **Cʟɪᴄᴋ ᴛʜᴇ ғᴏʟʟᴏᴡɪɴɢ ʙᴜᴛᴛᴏɴs ғᴏʀ ᴍᴏʀᴇ ɪɴғᴏʀᴍᴀᴛɪᴏɴ** **[<img width="30" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Line-Heart.gif">](https://t.me/its_vector)**
+- **Cʟɪᴄᴋ ᴛʜᴇ ғᴏʟʟᴏᴡɪɴɢ ʙᴜᴛᴛᴏɴs ғᴏʀ ᴍᴏʀᴇ ɪɴғᴏʀᴍᴀᴛɪᴏɴ** **[<img width="20" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Search.gif">](https://t.me/its_vector)**
 
 # [<img height="35" src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Loading.gif">](https://t.me/its_vector) Mʏ Hᴏʙʙɪᴇs : 
 [<img src="https://github.com/vectorx-dev/vectorx-dev/blob/main/resources/Coding.gif">](https://t.me/its_vector)
